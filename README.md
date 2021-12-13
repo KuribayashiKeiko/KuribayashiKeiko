@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KuribayashiKeiko
+- 👀 I’m interested in ... Anime
+- 🌱 I’m currently learning ... -
+- 💞️ I’m looking to collaborate on ... -
+- 📫 How to reach me ... Discord https://discord.gg/qXmm7yuR4r
